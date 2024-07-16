@@ -1,7 +1,7 @@
 ## 个人简介
 
 ## 俞樾奕
-**邮件:** ustcyyy@mail.ustc.edu.cn  
+**邮件:** ustcyyy@mail.ustc.edu.cn 
 
 ## 教育经历
 
